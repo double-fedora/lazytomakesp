@@ -1,2 +1,1 @@
-# lazytomakesp
-read this because no WAY i'm making a strawpage
+Hey there, uhhh wip just wait ok
