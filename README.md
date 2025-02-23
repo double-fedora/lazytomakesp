@@ -8,10 +8,20 @@ I'm usually free to interact with, c + h friendly too! Just respect it if I have
 If i'm afk, please whisper to interact with me, I usually miss a lot of messages and respond too late.
 
 You can always find me in roleplays, miniganes like fts, gtc, or commonly the roblox area.
+
+Multifandom!!
+
 ...
 
-You're messages here gets pinned to the...
-# WALL OF SHAME!
+Cuddle Comfort — Kiss Discomfort (unless you're oomf) — Respect my boundaries pls!! — Kaleidoscope Fans...interact with me immediately..
+
+...
+
+Your awkward messages here gets pinned to the...
+
+
+## WALL OF SHAME!
+**Always think before you send!!**
 
 10:35 PM[me ehhegef] whispers: if u can't cuddle w them cuddle w me 😈😈😈😈😈 smirk wink
 
@@ -22,5 +32,7 @@ You're messages here gets pinned to the...
 03:36 AM[C..chance?] whispers: Gets u prеgnаnt again
 
 03:34 AM[C..chance?] whispers: Gdts you prеgnаnt
+
 03:35 AM[C..chance?] whispers: Give bіrth now
+
 03:34 AM[C..chance?] whispers: Gdts you prеgnаnt
