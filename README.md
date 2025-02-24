@@ -1,21 +1,45 @@
-![9f3545ad1019d0652b25272caa40359f](https://github.com/user-attachments/assets/098da18b-c86f-47c0-8ec4-28b600edd3f5)
-✧ * - · 𝙲𝚑𝚊𝚗𝚌𝚎 𝙺𝚒𝚗! · ▻
+![Untitled659_20250224211600](https://github.com/user-attachments/assets/5ba98496-79ee-45f6-a38c-a85523209b0b)
 
-Hello, i'm Calixo/Hazard, but I usually prefer getting called ' Chance ' more!!
+———
 
-I'm usually free to interact with, c + h friendly too! Just respect it if I have dni in my name, it can mean i'm in a bad mood.
+" You were too naive to believe their words. Your actions has consequences. "
 
-If i'm afk, please whisper to interact with me, I usually miss a lot of messages and respond too late.
+#
 
-You can always find me in roleplays, miniganes like fts, gtc, or commonly the roblox area.
+[ Reset is my Sona ! ]
 
-Multifandom!!
+Hello there, i'm Calixo/Reset. I'm a 16 year old (mentally 13) unlabeled and transgender male. I prefer to go by they/he.
+
+[ Respect my Boundaries. ]
+
+While this can not make sense, if you're going to argue about this, just don't.
 
 ...
 
-Cuddle Comfort — Kiss Discomfort (unless you're oomf) — Respect my boundaries pls!! — Kaleidoscope Fans...interact with me immediately..
+Touch and Cud comf. Kiss discomf (to strangers)
+
+I appreciate getting crowned!
+
+I'm free to interact with unless I have dni in my name, just respect it.
 
 ...
+
+Sometimes I might sound mean and not realize it, so apologies for my naive behavior (forgive me if you're one of them I didn't mean it😓)
+
+
+———
+
+![Untitled658_20250224210717](https://github.com/user-attachments/assets/9dfe2b93-a55f-457c-bebb-6223de279408)
+
+#
+
+Wall of Doodle(s)!!
+
+![Untitled658_20250224205155](https://github.com/user-attachments/assets/f6fd2e7b-c33b-415b-8227-8f66861675c8) (yes that is reset's legacy design)
+
+
+#
+
 
 Your awkward messages here gets pinned to the...
 
