@@ -10,6 +10,8 @@ They/He preferred, but feel free to use any gender except she/her
 
 Unfortunately immature, i'm usually too apologetic and kinda naive, so please remind me if im apologizing too much or not noticing something
 
+#
+
 [ Respect my Boundaries. ]
 
 While this can not make sense, if you're going to argue about this, just don't.
