@@ -1,14 +1,14 @@
 ![Untitled659_20250224211600](https://github.com/user-attachments/assets/5ba98496-79ee-45f6-a38c-a85523209b0b)
 
-———
-
-" You were too naive to believe their words. Your actions has consequences. "
-
 #
 
-[ Reset is my Sona ! ]
+Calixo / Reset
 
-Hello there, i'm Calixo/Reset. I'm a 16 year old (mentally 13) unlabeled and transgender male. I prefer to go by they/he.
+16 years old, unlabeled.
+
+They/He preferred, but feel free to use any gender except she/her
+
+Unfortunately immature, i'm usually too apologetic and kinda naive, so please remind me if im apologizing too much or not noticing something
 
 [ Respect my Boundaries. ]
 
@@ -18,14 +18,7 @@ While this can not make sense, if you're going to argue about this, just don't.
 
 Touch and Cud comf. Kiss discomf (to strangers)
 
-I appreciate getting crowned!
-
 I'm free to interact with unless I have dni in my name, just respect it.
-
-...
-
-Sometimes I might sound mean and not realize it, so apologies for my naive behavior (forgive me if you're one of them I didn't mean it😓)
-
 
 ———
 
