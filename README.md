@@ -38,6 +38,9 @@ Your awkward messages here gets pinned to the...
 
 ## WALL OF SHAME!
 **Always think before you send!!**
+***Recent to Old***
+
+10:41 AM[fishing hook] shreks daughter made my pole point north
 
 10:35 PM[me ehhegef] whispers: if u can't cuddle w them cuddle w me 😈😈😈😈😈 smirk wink
 
