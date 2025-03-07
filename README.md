@@ -28,10 +28,7 @@ I'm free to interact with unless I have dni in my name, just respect it.
 
 #
 
-Wall of Doodle(s)!!
-
-![Untitled658_20250224205155](https://github.com/user-attachments/assets/f6fd2e7b-c33b-415b-8227-8f66861675c8) (yes that is reset's legacy design)
-
+I'm not really that active in ponytown anymore, so seeing me is going to be rare (for now)
 
 #
 
